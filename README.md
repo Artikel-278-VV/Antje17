@@ -79,9 +79,9 @@ Quelle: [MatrixHacker](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/mai
 - 😄 Pronomen: ...
 - ⚡ Interessante Tatsache: ...
 
-## 📈 GitHub Stats
+Danke, dass Sie mein Profil besucht haben! Ich wünsche Ihnen einen schönen Tag! 😊
 
-![Your GitHub stats](https://github-readme-stats.vercel.app/api?username=Artikel-278-VV&show_icons=true&theme=radical)
+& Weib von [MatrixHacker](https://github.com/Znih) ©® [zfV.](https://www.copyright.gov/fair-use/)
 
 
 <!---
