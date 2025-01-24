@@ -52,6 +52,24 @@
     <img src="https://github.com/Znih/XiaomingX/blob/315b265f6f081e9104f18365412cedaab4110e99/output/github-snake.svg" />
 </a>
 
+# Artikel I – Ausgleich
+
+`Behandle Leben so, daß es ohne Unheil bleibt, so wie Du selbst stets ohne Unheil bleiben willst.`
+
+# Artikel II – Macht verpflichtet
+
+`Strebe nach Ansehen, Macht und Vermögen aber verletze Niemanden [vgl. Art. I], sondern beschütze und fördere stets die Schwächsten, soweit Du kannst.`
+
+**Macht zur Verantwortung wie Recht zur Pflicht.**
+
+# Artikel III – Wissen verpflichtet
+
+`Strebe nach Wissen und Erkenntnis aber verletze Niemanden (Art. I), sondern beschütze und bewahre,
+um dann Allen und Jedem bereitzustellen, sofern aufrichtig gewünscht und soweit Du kannst.`
+
+**Wissen zur Verantwortung wie Recht zur Pflicht.**
+
+Quelle: [MatrixHacker](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/20240801_Aufsatz_deutsche-Staatsangehoerigkeit_Deutsche-Buergerschaft_Waffe-StAG_berichtigte-Fassung.pdf)
 
 - 👋 Hallo, ich bin @Antje17
 - 👀 Ich interessiere mich für ...
