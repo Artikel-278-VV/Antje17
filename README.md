@@ -82,23 +82,6 @@ Quelle: [MatrixHacker](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/mai
 Danke, dass Sie mein Profil besucht haben! Ich wünsche Ihnen einen schönen Tag! 😊
 
 & Weib von [MatrixHacker](https://github.com/Znih) ©® [zfV.](https://www.copyright.gov/fair-use/)
-
-### WhatsApp Happen
-
-<video src="https://github.com/user-attachments/assets/51a1c58a-8a1d-4147-b9e9-30049d5e174a" controls="controls" style="max-width: 730px;"></video>
-
-<video src="https://github.com/user-attachments/assets/90bca90a-e350-4d98-9ed7-237cc808a93c" controls="controls" style="max-width: 730px;"></video>
-
-
-[goldenrule.webm](https://github.com/user-attachments/assets/739674e8-33ec-4a8a-9373-6b2a62516908)
-
-[goldenrule3.webm](https://github.com/user-attachments/assets/4fb495b2-d039-4e7a-ae64-6c07dca8b218)
-
-[goldenrule4.webm](https://github.com/user-attachments/assets/e2ad45f6-9560-426a-b227-7f15b3d40b30)
-
-
-[gr9.webm](https://github.com/user-attachments/assets/cfe99de2-3d76-4791-b423-7db67a866cb4)
-
 https://github.com/user-attachments/assets/7d26eb82-9577-468e-8505-73bb95e1b1f3
 
 
