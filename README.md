@@ -91,3 +91,10 @@ https://github.com/Artikel-278-Versailler-Diktat/demo-repository/issues/1#event-
 Antje17/Antje17 ist ein ✨ besonderes ✨ Repository, da seine `README.md` (diese Datei) in Ihrem GitHub-Profil erscheint.
 Sie können auf den Link „Vorschau“ klicken, um sich Ihre Änderungen anzusehen.
 --->
+
+<!-- @Jule2K5 here -->
+
+{![Bildschirmfoto vom 2025-01-26 12-30-45](https://github.com/user-attachments/assets/b36b3db2-955b-4ed8-8041-1786001ad1fd)](https://www.presidency.ucsb.edu/documents/executive-order-13903-combating-human-trafficking-and-online-child-exploitation-the-3)
+
+[![Bildschirmfoto vom 2025-01-26 12-31-27](https://github.com/user-attachments/assets/4367f553-a707-4aa7-99bf-365c61cb7ccb)](https://www.presidency.ucsb.edu/documents/executive-order-13903-combating-human-trafficking-and-online-child-exploitation-the-3)
+
